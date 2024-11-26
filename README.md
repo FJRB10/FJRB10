@@ -39,6 +39,8 @@ Estoy comprometido con el aprendizaje y crecimiento continuo. Mis objetivos pró
 ---
 
 ¡No dudes en conectarte, colaborar o explorar mis repositorios! Juntos, podemos dar sentido a los datos y crear soluciones impactantes.
+Email: javigabo10@gmail.com
+Número: +57 3043251636
 
 🛠️  **¡Construyamos el futuro, un conjunto de datos a la vez!**
 
